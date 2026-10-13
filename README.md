@@ -1,4 +1,4 @@
-https://gifcity.carrd.co/assets/images/gallery39/751c0dea.gif?v=3fc8f5cd
+https://yourimageshare.com/ib/chvDrxZCmT
 
 Call me Lost or whoever I’m cosplaying.
 
