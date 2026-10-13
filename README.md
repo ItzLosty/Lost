@@ -1,4 +1,4 @@
-<img src=https://gifcity.carrd.co/assets/images/gallery39/751c0dea.gif?v=3fc8f5cd<img width="385" height="29" alt="image" src="https://github.com/user-attachments/assets/3fd7e7b2-74f2-4d2b-a282-2cdff4a1720e" />
+<img width="385" height="29" alt="image" src="https://github.com/user-attachments/assets/3fd7e7b2-74f2-4d2b-a282-2cdff4a1720e" />
 
 
 Call me Lost or whoever I’m cosplaying.
