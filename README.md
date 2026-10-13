@@ -18,6 +18,3 @@ age players
 
 please INTERACT if into;
 Pokémon, minecraft, deltarune, undertale, fnaf, space king, pokepasta, bsd, jjk, and more I’m to lazy to type out.. later tho
-
-
-<img width="385" height="29" alt="image" src="[https://github.com/user-attachments/assets/3fd7e7b2-74f2-4d2b-a282-2cdff4a1720e](https://wilardo.crd.co/assets/images/gallery22/79766b3a_original.png?v=6e1c5ef2)" />
