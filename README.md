@@ -1,6 +1,7 @@
 Call me Lost or whoever I’m cosplaying.
 
 I’m a 21 yo artist; and recovering sys 
+
 I go by he/it pronouns
 
 
