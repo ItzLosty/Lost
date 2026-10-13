@@ -1,3 +1,5 @@
+https://gifcity.carrd.co/assets/images/gallery39/751c0dea.gif?v=3fc8f5cd
+
 Call me Lost or whoever I’m cosplaying.
 
 I’m a 21 yo artist; and recovering sys 
